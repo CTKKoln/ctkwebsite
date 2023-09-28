@@ -29,7 +29,7 @@ The festive season is upon us, and Cologne Tamil Kuzhumam is thrilled to invite 
 
 **Lamp Lighting Ceremony:** Partake in the symbolic lighting of lamps, signifying the triumph of light over darkness and the victory of good over evil.
 
-**Fun for All Ages:** We have exciting activities for children and adults alike, ensuring a memorable experience for everyone in the family. Enjoy fun-filled games, face painting, and more.
+**Fun for All Ages:** We have exciting activities for children and adults alike, ensuring a memorable experience for everyone in the family. Enjoy fun-filled games, Dance, and more.
 
 **Raffle Prizes:** Don't miss your chance to win fantastic prizes in our Diwali raffle.
 
